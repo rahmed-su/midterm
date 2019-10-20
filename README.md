@@ -1,2 +1,0 @@
-# midterm
-AhmedRebecca_Midterm
